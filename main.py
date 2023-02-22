@@ -1,1 +1,1 @@
-ova e novooo
+ova e novooo skros
